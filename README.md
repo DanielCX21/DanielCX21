@@ -5,3 +5,5 @@ I’m looking to collaborate on open source projects that increase privacy and r
 How to reach me ... Dont try it!
 Pronouns: I dont believe in pronouns!
 Fun fact: ... I don’t like fun
+
+DEUS, PATRIA, FAMILIA!
